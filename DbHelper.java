@@ -3,12 +3,5 @@ khilgf
 
 
 d
-sgwt
-
-
-ewetwetwet
-
-e
-werw
-trwet
+ddd
 
